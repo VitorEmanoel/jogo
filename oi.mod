@@ -2,12 +2,12 @@ Oi, os jacks
 
 tudo bem
 
-1)
+1) 
 
 2) Bruno
 
 3)Chicossauro
 
-4)
+4) Weydson
 
 5)
